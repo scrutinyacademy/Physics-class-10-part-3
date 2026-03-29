@@ -1,0 +1,1 @@
+# Physics-class-10-part-3
